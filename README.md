@@ -34,6 +34,6 @@ ${{\color{#A1A100}\text{wip lul}}}$ <br>
   workdailylog, 02275 </sup>
 <!--
 
-hi : P solkat4ever
+hi :p im not normal about solkat.. solkat 44ever..
 
 -->
