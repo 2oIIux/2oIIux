@@ -1,5 +1,7 @@
+<p align="left">	<sup> 
+ <br> gif warning;; flashing lights      </sup>
 ㅤ<br>
-<img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.webp" />
+<img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.gif" />
 <p align="center">	<sup> 
   <img src=https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp>
  <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$    </sup>
@@ -16,7 +18,7 @@
 
 <p align="center">
   ${{\color{#ffffff}\text{⠀⠀⠀⠀}}}$<br>
-${{\color{#0000e3}\text{hi}}}$ ${{\color{#e30000}\text{lol}}}$<br>
+${{\color{#0000e3}\text{addit}}}$${{\color{#e30000}\text{ional}}}$<br>
 
 
 </details>
