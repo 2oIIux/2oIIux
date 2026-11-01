@@ -18,7 +18,7 @@
 
 <p align="center">
   ${{\color{#ffffff}\text{⠀⠀⠀⠀}}}$<br>
-${{\color{#0000e3}\text{addit}}}$${{\color{#e30000}\text{ional}}}$<br>
+${{\color{#A1A100}\text{additional info}}}$ <br>
 
 
 </details>
@@ -27,3 +27,9 @@ ${{\color{#0000e3}\text{addit}}}$${{\color{#e30000}\text{ional}}}$<br>
 </table>
 
 <img align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" />
+
+<!--
+
+hi : P solkat4ever
+
+-->
