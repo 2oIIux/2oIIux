@@ -2,7 +2,7 @@
 <img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.webp" />
 <p align="center">	<sup> 
   <img src=https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp>
- <br> bburps      </sup>
+ <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$    </sup>
 
 <p align="center" dir="auto"> 
 
