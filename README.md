@@ -37,6 +37,7 @@ ${{\color{#A1A100}\text{wip lul}}}$ <br>
   workdailylog, 02275 </sup>
 <!--
 
-hi :p im not normal about solkat.. solkat 44ever..
+hhi :p im not normal about solkat.. solkat 44ever.. i also like soltavheheh awwww
+im so pissed about sollux not appearing until like way l8er on in the acts if anyone gaf. idk. just putting that here.
 
 -->
