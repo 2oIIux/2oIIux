@@ -1,11 +1,20 @@
-<p align="center">
-<div class="container">
-  <details id="target">
-    <summary id="anchor">save me from myself, i've created hell</summary>
+<p align="center" dir="auto"> 
 
-    <nav>
-      <ul>
-ttesting
-      </ul>
-    </nav>
-  </details>
+<table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
+<tr>
+<td>
+
+<details>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀ㅤte2ttiiing..⠀ㅤ</summary>
+
+
+hi
+
+
+
+
+
+</details>
+</td>
+</tr>
+</table>
