@@ -1,6 +1,6 @@
 <p align="center" dir="auto"> 
 
-<table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
+<table width="520" border="1" cellpadding="10" cellspacing="0" background-color="#1500ff;" align="center">
 <tr>
 <td>
 
