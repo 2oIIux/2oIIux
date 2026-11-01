@@ -10,7 +10,7 @@
  <br> ${{\color{#3030e6}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
  <img src="https://file.garden/Z-2b_9WhPAglb5Ie/68747470733a2f2f66696c652e67617264656e2f5a2d32625f3957685041676c623549652f38626166613861312e676966.webp" width="220"> <br>
 .𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#3030e6}\text{iwc}}}$ㅤ𝜚⋅ <br>
-${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$ <br>
+${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i preferred}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$ <br>
 <img src="https://file.garden/Z-2b_9WhPAglb5Ie/lego.gif" width="220"> <br>
 <img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
 
