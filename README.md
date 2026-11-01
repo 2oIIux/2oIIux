@@ -18,7 +18,7 @@
 
 <p align="center">
   ${{\color{#ffffff}\text{⠀⠀⠀⠀}}}$<br>
-${{\color{#A1A100}\text{additional info}}}$ <br>
+${{\color{#A1A100}\text{wip lul}}}$ <br>
 
 
 </details>
@@ -26,8 +26,12 @@ ${{\color{#A1A100}\text{additional info}}}$ <br>
 </tr>
 </table>
 
-<img align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" />
-
+<p align="center"> 
+<img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
+<img height="80" align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" /> <br>
+ <p align="right"> <sup>
+  art credits<br>
+  workdailylog, 02275 </sup>
 <!--
 
 hi : P solkat4ever
