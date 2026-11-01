@@ -3,8 +3,11 @@
 ㅤ<br>
 <img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.gif" />
 <p align="center"> 
-  <img src=https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp>
- <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$    
+  <img height="50" src=https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp>
+ <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
+ <p align="center"> 
+.𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#0000e3}\text{iwc}}}$ㅤ𝜚⋅ <br>
+${{\color{#e30000}\text{c+h}}}$
 
 <p align="center" dir="auto"> 
 
@@ -13,7 +16,7 @@
 <td>
 
 <details>
-<summary color:#4db6ac; cursor:pointer;">⠀ㅤ2ave me from my2elf⠀ㅤ</summary>
+<summary color:#4db6ac; cursor:pointer;">⠀ㅤsave me from myself, ive created hell⠀ㅤ</summary>
 
 
 <p align="center">
