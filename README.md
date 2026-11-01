@@ -8,10 +8,10 @@
  
 <p align="center"> 
   <img height="50" src="https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp">
- <br> ${{\color{#1d1dde}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
+ <br> ${{\color{#3030e6}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
  <p align="center"> 
-.𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#1d1dde}\text{iwc}}}$ㅤ𝜚⋅ <br>
-${{\color{#0000e3}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$
+.𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#3030e6}\text{iwc}}}$ㅤ𝜚⋅ <br>
+${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$
 <p align="center"> 
 <img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
 
