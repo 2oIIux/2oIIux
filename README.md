@@ -7,7 +7,7 @@
  <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
  <p align="center"> 
 .𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#0000e3}\text{iwc}}}$ㅤ𝜚⋅ <br>
-${{\color{#e30000}\text{c+h}}}$
+${{\color{#0000e3}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$
 
 <p align="center" dir="auto"> 
 
@@ -16,7 +16,7 @@ ${{\color{#e30000}\text{c+h}}}$
 <td>
 
 <details>
-<summary color:#4db6ac; cursor:pointer;">⠀ㅤsave me from myself, ive created hell⠀ㅤ</summary>
+<summary color:#4db6ac; cursor:pointer;">⠀ㅤsave me from myself⠀ㅤ</summary>
 
 
 <p align="center">
