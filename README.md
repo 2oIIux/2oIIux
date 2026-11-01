@@ -1,5 +1,5 @@
 <p align="left">	<sup> 
- <br> gif warning;; flashing lights      </sup>
+ <br> gif warning;; flashing lights/eyetsrain      </sup>
 ㅤ<br>
 <img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.gif" />
  
