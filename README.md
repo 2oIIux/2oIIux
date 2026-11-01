@@ -5,14 +5,13 @@
  
 <p align="center"> 
 <a href="https://2ollux.atabook.org"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102045712.png"width="60"></img></a><img src="https://64.media.tumblr.com/a925b3a49ac575709cf8bb378517eb29/03e58ad2d0f38d15-ec/s500x750/55bef0075cffa2866a9d3f330c508b333538b9ed.pnj"height="17">  <a href="https://twinarmaugeddions.straw.page"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102045707.png"width="58"></img></a>
- 
 <p align="center"> 
-  <img height="50" src="https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp">
+  <img height="30" src="https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp">
  <br> ${{\color{#3030e6}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
- <p align="center"> 
+ <img src="https://file.garden/Z-2b_9WhPAglb5Ie/68747470733a2f2f66696c652e67617264656e2f5a2d32625f3957685041676c623549652f38626166613861312e676966.webp" width="220"> <br>
 .𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#3030e6}\text{iwc}}}$ㅤ𝜚⋅ <br>
-${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$
-<p align="center"> 
+${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$ <br>
+<img src="https://file.garden/Z-2b_9WhPAglb5Ie/lego.gif" width="220"> <br>
 <img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
 
 <img height="80" align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" /> <br>
