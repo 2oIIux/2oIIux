@@ -17,7 +17,7 @@ ${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\colo
 <img height="80" align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" /> <br>
  <p align="right"> <sup>
   art credits<br>
-  workdailylog, 02275 </sup>
+  workdailylog, 02275, earthllux2006 </sup>
 <!--
 
 hhi :p im not normal about solkat.. solkat 44ever.. i also like soltavheheh awwww
