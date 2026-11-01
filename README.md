@@ -2,35 +2,21 @@
  <br> gif warning;; flashing lights      </sup>
 ㅤ<br>
 <img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.gif" />
+ 
 <p align="center"> 
-  <img height="50" src=https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp>
+<a href="https://2ollux.atabook.org"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102043502.png"width="60"></img></a><img src="https://64.media.tumblr.com/a925b3a49ac575709cf8bb378517eb29/03e58ad2d0f38d15-ec/s500x750/55bef0075cffa2866a9d3f330c508b333538b9ed.pnj"height="17">  <a href="https://twinarmaugeddions.straw.page"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102043457.png"width="58"></img></a>
+ 
+<p align="center"> 
+  <img height="50" src="https://file.garden/Z-2b_9WhPAglb5Ie/TAaniFINAL.webp">
  <br> ${{\color{#0000e3}\text{seven}}}$ ${{\color{#A1A100}\text{or}}}$ ${{\color{#e30000}\text{hell}}}$ <br>
  <p align="center"> 
 .𝜗ㅤ ${{\color{#e30000}\text{he hymn}}}$ㅤ ${{\color{#0000e3}\text{iwc}}}$ㅤ𝜚⋅ <br>
 ${{\color{#0000e3}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i}}}$ ㅤ ${{\color{#e30000}\text{afk/offt.}}}$
-
-<p align="center" dir="auto"> 
-
-<table width="520" border="1" cellpadding="10" cellspacing="0" align="center">
-<tr>
-<td>
-
-<details>
-<summary color:#4db6ac; cursor:pointer;">⠀ㅤsave me from myself⠀ㅤ</summary>
-
-
-<p align="center">
-  ${{\color{#ffffff}\text{⠀⠀⠀⠀}}}$<br>
-${{\color{#A1A100}\text{wip lul}}}$ <br>
-
-
-</details>
-</td>
-</tr>
-</table>
-
 <p align="center"> 
 <img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
+
+  ${{\color{#ffffff}\text{⠀⠀⠀⠀}}}$<br>
+ 
 <img height="80" align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" /> <br>
  <p align="right"> <sup>
   art credits<br>
