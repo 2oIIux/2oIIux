@@ -2,8 +2,6 @@
  <br> gif warning;; flashing lights/eyetsrain      </sup>
 ㅤ<br>
 <img align="left" src="https://file.garden/Z-2b_9WhPAglb5Ie/New%20Project%2033%20%5B6DFDD94%5D.gif" />
- <p align="left">	<sup> 
- <br> hugs s.a.d      </sup>
  
 <p align="center"> 
 <a href="https://2ollux.atabook.org"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102045712.png"width="60"></img></a><img src="https://64.media.tumblr.com/a925b3a49ac575709cf8bb378517eb29/03e58ad2d0f38d15-ec/s500x750/55bef0075cffa2866a9d3f330c508b333538b9ed.pnj"height="17">  <a href="https://twinarmaugeddions.straw.page"><img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2680_20261102045707.png"width="58"></img></a>
