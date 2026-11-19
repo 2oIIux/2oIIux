@@ -14,6 +14,9 @@ ${{\color{#3030e6}\text{c+h}}}$ ㅤ ${{\color{#A1A100}\text{w2i preferred}}}$ �
 <img src="https://file.garden/Z-2b_9WhPAglb5Ie/lego.gif" width="220"> <br>
 <img width="260" src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2678_20261102023232.png"/> <br>
 
+<p align="center"> 
+<br> ${{\color{#3030e6}\text{inspo is okay, just dont copy my skins entirely}}}$ ${{\color{#A1A100}\text{ㅤ}}}$ ${{\color{#e30000}\text{i only fb moots/oomfs on git}}}$ <br>
+
 <img height="80" align="right" src="https://file.garden/Z-2b_9WhPAglb5Ie/Tholluxth.webp" /> <br>
  <p align="right"> <sup>
   art credits<br>
